@@ -14,4 +14,4 @@
 2. In a large bowl, whisk together the flour, sugar, and cocoa powder.
 3. Bake for 30-35 minutes
 4. Pour into greased cake pan
-3. Add eggs one at a time, then vanilla
+5. Add eggs one at a time, then vanilla
